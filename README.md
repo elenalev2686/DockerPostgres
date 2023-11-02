@@ -1,1 +1,1 @@
-![img.png](img.png)(https://disk.yandex.ru/i/oTB2DoWRN87pwQ)
+![img.png](img.png)
